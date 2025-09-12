@@ -79,7 +79,7 @@ jobs:
 [![FORK CYBER Ullash ッ ](https://img.shields.io/badge/FORK%20-CYBER%20Ullashッ%20V01-white)](https://github.com/cyber-ullash/CYBER-BOT-COMMUNITY/forks)
 
  
-🕋✨ `THIS BOT IS CREATED TO DOWNLOAD'S AND FIND VARIOUS TYPES THINGS QUICKLY **EXAMPLE** LOGO, PHOTO, STICKERS, VIDEOS, MOVIES, ADULT, AND MANY MORE FEATURES BY USING THIS BOT™ THIS BOT IS CREATED TO USING` 🌸 **[Original-fork](https://github.com/cyber-ullash/CYBER-BOT-COMMUNITY)**
+🕋✨ `THIS BOT IS CREATED TO DOWNLOAD'S AND FIND VARIOUS TYPES THINGS QUICKLY **EXAMPLE** LOGO, PHOTO, STICKERS, VIDEOS, MOVIES, ADULT, AND MANY MORE FEATURES BY USING THIS BOT™ THIS BOT IS CREATED TO USING` 🌸 **[Original-fork](https://github.com/cyber-HORAIRA/CYBER-BOT-COMMUNITY)**
 
 ------------------
 
@@ -213,7 +213,7 @@ May this journey continue with all of you by my side, **In Shaa Allah**.`
 
 ----------
 
-Thanks For Using 𝗜𝘀𝗹𝗮𝗺𝗶𝗰𝗸 𝗰𝗵𝗮𝘁 𝗯𝗼𝘁  
+Thanks For Using HORAIRA 
 
 > Release Date : 15/04/2025 at 08.00 
 Dᴏɴ’ᴛ Fᴏʀɢᴇᴛ ᴛᴏ ɢɪᴠᴇ ᴀ sᴛᴀʀ ⭐️ ᴀꜰᴛᴇʀ ꜰᴏʀᴋ
